@@ -7,3 +7,5 @@ enserio?
 enserio
 no lo defraudare papa, voy a hacer chocolate casero, me cree?
 solo si lo veo
+
+SI SACO LA GUN
